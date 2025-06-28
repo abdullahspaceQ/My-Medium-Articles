@@ -1,2 +1,2 @@
-# Medium-Yaz-lar-m
+# Medium Kütüphanem
 Medium Kütüphanem
